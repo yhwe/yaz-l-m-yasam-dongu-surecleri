@@ -1,0 +1,1 @@
+# yaz-l-m-yasam-dongu-surecleri
